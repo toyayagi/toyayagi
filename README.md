@@ -1,5 +1,5 @@
 
-ㅤ<p align="center">ㅤㅤ <img width="500" height="500" alt="622_sin_titulo_20260509172945" src="[img]https://i.imgur.com/4PLAmIj.png" />
+ㅤ<p align="center">ㅤㅤ <img width="500" height="500" alt="622_sin_titulo_20260509172945" src="229_sin_titulo_20250918215946.png" />
 ㅤ
 ㅤ
 ㅤ
