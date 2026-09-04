@@ -1,5 +1,5 @@
 
-ㅤ<p align="center">ㅤㅤ <img width="500" height="500" alt="622_sin_titulo_20260509172945" src="[[https://github.com/user-attachments/assets/3ed15e49-1850-4377-b432-28ba3c7c315a](https://discord.com/channels/983867913331179541/983871147798065272/1545234077286797312)]" />
+ㅤ<p align="center">ㅤㅤ <img width="500" height="500" alt="622_sin_titulo_20260509172945" src="[[img]https://i.imgur.com/4PLAmIj.png[/img]]" />
 ㅤ
 ㅤ
 ㅤ
