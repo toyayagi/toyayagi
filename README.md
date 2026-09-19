@@ -1,5 +1,7 @@
+ㅤ<p align="center">ㅤㅤ <img width="1000" height="1000" alt="banner" src="164_sin_titulo_20260918135750.png" />
 
-ㅤ<p align="center">ㅤㅤ <img width="500" height="500" alt="622_sin_titulo_20260509172945" src="229_sin_titulo_20250918215946.png" />
+
+ㅤ<p align="center">ㅤㅤ <img width="700" height="700" alt="toya" src="167_sin_titulo_20260918211254.png" />
 ㅤ
 ㅤ
 ㅤ
