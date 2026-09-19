@@ -1,6 +1,5 @@
 ㅤ<p align="center">ㅤㅤ <img width="1000" height="1000" alt="banner" src="164_sin_titulo_20260918135750.png" />
 ㅤ<p align="center">ㅤㅤ ![](https://komarev.com/ghpvc/?username=toyayagi&color=aeb1eb&label=coffee&base=525)
-
 ㅤ<p align="center">ㅤㅤ <img width="700" height="700" alt="toya" src="167_sin_titulo_20260918211254.png" />
 ㅤ
 ㅤ
